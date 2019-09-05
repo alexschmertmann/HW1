@@ -1,3 +1,0 @@
-Alex Schmertmann
-
-KC ROYALS
